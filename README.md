@@ -12,5 +12,8 @@ vy73 De Daniel SP6QKX
 www.qrz.com/db/sp6qkx
 
 
-https://a.aliexpress.com/_mO63Ru1 - Rejestrująć sie przy użyciu tego linka otrzymasz około 93zł rabatu na zakupy w Sklepie Aliexpress .
-https://a.aliexpress.com/_mO63Ru1 - using this link at register You get $24 discount on your purchases in Aliexpress shop .
+ZWROT GOTÓWKI - CASHBACK  $$$$$  https://tiny.pl/9gh2m .
+
+SHOPPING CASHBACK - Register and Get BONUS  $$$ .
+
+Otrzymasz 10zł za otwarcie konta CashBack za zakupy w Internecie !
