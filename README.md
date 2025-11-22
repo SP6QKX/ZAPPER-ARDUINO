@@ -7,13 +7,19 @@ Signal Output ARDUINO PORT 3 - Also you can simply steering eg. MOSFET which out
 
 
 
+More information on email  s p 6 q k x @ p o c z t a . f m
+
+[https://qrz.com/DB/SP6QKX
+
+https://www.facebook.com/sp6qkx
+
+https://www.winsell.pl
+
+https://www.sp6qkx.winsell.pl
+
 That all folks :) 
-vy73 De Daniel SP6QKX 
-www.qrz.com/db/sp6qkx
 
+Thanks and Greetings 
 
-ZWROT GOTÓWKI - CASHBACK  $$$$$  https://tiny.pl/9gh2m .
+vy73 Daniel SP6QKX )
 
-SHOPPING CASHBACK - Register and Get BONUS  $$$ .
-
-Otrzymasz 10zł za otwarcie konta CashBack za zakupy w Internecie !
